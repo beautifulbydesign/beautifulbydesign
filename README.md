@@ -1,16 +1,16 @@
-## Hi there 👋
+<p align="center">ɴᴏ ʟᴏɴɢᴇʀ ᴡɪʟʟ ᴡᴇ ʙᴇ ɢᴜɪᴅᴇᴅ ʙʏ ɪɴᴠɪꜱɪʙʟᴇ ʜᴀɴᴅꜱ, </p>
+<p align="center">ᴛʜᴇ ᴀʀᴄᴀɴᴇ ᴡɪʟʟ ꜰʀᴇᴇ ᴜꜱ, ᴀɴᴅ ɪ ᴀᴍ ɪᴛꜱ ʜᴇʀᴀʟᴅ. </p>
 
-<!--
-**beautifulbydesign/beautifulbydesign** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<br>
+<p align="center">══════ ཐི⋆ GREETINGS ⋆ཋྀ ══════</p>
 
-Here are some ideas to get you started:
+<p align="center">Hello. You may call me Viktor or Sunny. Check out my links or main profile for info abt me!</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">If this was connected to my avatar - I'm likely feeling uneasy or hesitant to interact. Please interact with caution or care.</p>
+
+<br>
+<p align="center">══════ ཐི⋆ Extra info? ⋆ཋྀ ══════</p>
+ 
+<p align="center">I use this as a following/side account. I follow anyone who follows me, as well as anyone I find cool!</p>
+
+<p align="center">I don't pay attention to who I follow back so idk if someone is problematic. You may let me know through ATA, Strawpage or Discord.</p>
