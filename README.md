@@ -1,16 +1,33 @@
-<p align="center">ɴᴏ ʟᴏɴɢᴇʀ ᴡɪʟʟ ᴡᴇ ʙᴇ ɢᴜɪᴅᴇᴅ ʙʏ ɪɴᴠɪꜱɪʙʟᴇ ʜᴀɴᴅꜱ, </p>
-<p align="center">ᴛʜᴇ ᴀʀᴄᴀɴᴇ ᴡɪʟʟ ꜰʀᴇᴇ ᴜꜱ, ᴀɴᴅ ɪ ᴀᴍ ɪᴛꜱ ʜᴇʀᴀʟᴅ. </p>
+<p align="center">$\color{#1171AB}{KAYLEIGHJUDAS​ - ​PONYTOWN'S​ MACHINE​ HERALD​ :​ Title ​Town​ 𖥔​ PT​ Walk​ of ​Fame​ 𖥔 ​PT​ Achievements}$</p>
+
+<p align="center"><img width="838" height="194" alt="image" src="https://github.com/user-attachments/assets/f6c1cccb-35b2-417b-a94b-b3a24864aa4d" /></p>
+
+<p align="center">$\color{#C9D9FF}{``No​ longer ​will ​we​ be ​guided ​by ​invisible ​hands. ​The​ Arcane​ will​ free ​us, ​and ​I ​am ​its ​Herald.``}$</p>
+
+
+<div align="center">
+
+<table>
+<tr>
+<td>
+<br>
+
+<p align="center">$\color{#FFF6CE}{Hello.​ I'm​ Viktor.​ Check​ my​ main ​profile ​for ​my ​information!}$</p>
+
+<p align="center">$\color{#FFF6CE}{This​ is​ a​ side​ account​ used ​for ​following ​people​ who​ have ​followed ​me.}$</p>
+
+<p align="center">$\color{#FFF6CE}{I ​don't ​pay ​attention ​to ​who ​I ​follow ​back.​ I ​don't ​know​ if ​someone ​is​ problematic.}$</p> 
+
+<p align="center">$\color{#FFF6CE}{If ​you​ think​ I'm ​cool ​SIGN ​MY ​ATA ​!!!!​ Joking, ​Joking.​ You ​don't ​gotta,​ no ​pressure. ​Heh.}$</p>
+
+<p align="center">$\color{#FE956D}{ ━━━━━━･❪ 🎕 ❫ ･━━━━━━ }$</p>
 
 <br>
-<p align="center">══════ ཐི⋆ GREETINGS ⋆ཋྀ ══════</p>
+</td>
+</tr>
+</table>
 
-<p align="center">Hello. You may call me Viktor or Sunny. Check out my links or main profile for info abt me!</p>
+</div>
 
-<p align="center">If this was connected to my avatar - I'm likely feeling uneasy or hesitant to interact. Please interact with caution or care.</p>
 
-<br>
-<p align="center">══════ ཐི⋆ Extra info? ⋆ཋྀ ══════</p>
- 
-<p align="center">I use this as a following/side account. I follow anyone who follows me, as well as anyone I find cool!</p>
-
-<p align="center">I don't pay attention to who I follow back so idk if someone is problematic. You may let me know through ATA, Strawpage or Discord.</p>
+<p align="center">$\color{#1171AB}{WILL​ ONLY ​REVISE​ WHEN ​MAIN​ GITHUB​ IS ​UPDATED ​𖥔 ​@KayleighJudas - ​MAIN ACCOUNT}$</p>
