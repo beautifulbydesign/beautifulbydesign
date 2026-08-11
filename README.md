@@ -1,4 +1,4 @@
-<p align="center">$\color{#1171AB}{KAYLEIGHJUDAS​ - ​PONYTOWN'S​ MACHINE​ HERALD​ :​ Title ​Town​ 𖥔​ PT​ Walk​ of ​Fame​ 𖥔 ​Ponychievements ​𖥔​ Charactersofpt}$</p>
+<p align="center">$\color{#1171AB}{​PONYTOWN'S​ MACHINE​ HERALD​ :​ Title ​Town​ 𖥔​ PT​ Walk​ of ​Fame​ 𖥔 ​Ponychievements ​𖥔​ Charactersofpt}$</p>
 
 <p align="center"><img width="838" height="194" alt="image" src="https://github.com/user-attachments/assets/f6c1cccb-35b2-417b-a94b-b3a24864aa4d" /></p>
 
