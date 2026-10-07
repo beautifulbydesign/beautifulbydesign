@@ -2,7 +2,7 @@
 
 <p align="center"><img width="710" height="193" alt="1054b24e-1e22-4de8-952e-4dffa3eb5302" src="https://github.com/user-attachments/assets/7222ae2f-effa-4db5-88d4-850af32a757f" /></p>
 
-<p align="center">$\color{#ECFBB0}{``No​ longer ​will ​we​ be ​guided ​by ​invisible ​hands. ​The​ Arcane​ will​ free ​us, ​and ​I ​am ​its ​Herald.``}$</p>
+<p align="center">$\color{#ECFBB0}{``Our​ duty ​as ​soldiers ​is ​to ​protect ​humanity, ​whatever ​the​ cost.``}$</p>
 
 
 <div align="center">
