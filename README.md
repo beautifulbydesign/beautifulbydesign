@@ -43,7 +43,8 @@ ________________________________________________________________________________
 <div align="center">
   <a href="https://github.com/beautifulbydesign">♡ Follow Account: @beautifulbydesign</a>
 </div>
-<br>
+<p align="center">━ ^ You are here ^ ━</p>
+
 <p align="center"> ━━━━━━･❪ Themed Github for Cosplays; ❫ ･━━━━━━ </p>
 
 <div align="center">
