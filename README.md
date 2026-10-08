@@ -31,3 +31,26 @@
 
 
 <p align="center">$\color{#1171AB}{WILL​ ONLY ​REVISE​ WHEN ​MAIN​ GITHUB​ IS ​UPDATED ​𖥔 ​@kayleighjudas - ​MAIN ACCOUNT}$</p>
+
+__________________________________________________________________________________________
+<br>
+<p align="center">𖥔 OTHER ACCOUNTS: 𖥔</p>
+<p align="center"> ━━━━━━･❪ Main & Follow Account ❫ ･━━━━━━ </p>
+
+<div align="center">
+  <a href="https://github.com/KayleighJudas">♡ Main Account: @kayleighjudas</a>
+</div>
+<div align="center">
+  <a href="https://github.com/beautifulbydesign">♡ Follow Account: @beautifulbydesign</a>
+</div>
+<br>
+<p align="center"> ━━━━━━･❪ Themed Github for Cosplays; ❫ ･━━━━━━ </p>
+
+<div align="center">
+  <a href="https://github.com/JoinTheGloriousEvolution">♡ LoL Viktor Cosplays: @JoinTheGloriousEvolution</a>
+</div>
+<div align="center">
+  <a href="https://github.com/Sierra-ll7">♡ Halo Cosplays: @Sierra-ll7</a>
+</div>
+<br>
+<p align="center"> I'm an account freak, sorry. </p>
